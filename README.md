@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Lexilexx123
+- 👀 I’m interested in beauty cosmetics 
+- 🌱 I’m currently learning Marketing 
+- 💞️ I’m looking to collaborate on intro marketing 
+- 📫 How to reach me on here 
+- 😄 Pronouns: ...
+- ⚡ Fun fact: new to college world . 
